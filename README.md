@@ -1,14 +1,14 @@
-# blooket-hack
+Hello My Name Is Noah 
+And I am the Inventer of this blooket cheat 
+are you just tired of your friends winning to the point 
+you download BlooketCheat Then You are at the right place 
+Currently At the Moment The AddTokens File will not work because 
+of the new update on blooket we will fix this as soon as possible 
+Thank you for joining us.
 
-Hell i'm actually gliz who created the blooket hacks. I got the repo from the guy who was impersonating me. 
+Please Make Sure You join my new discord server
+https://discord.gg/Uqq8EJ43xx
 
-**This repo will not be updated at all. If you have any questions join the discord server below I'll be answering them.**
+For Anyone That has joined my new server thank you 
+for helping me help and standout and thanks you for showing support
 
-**discord server: https://discord.gg/Nj9Zs5VtFp**
-
-Proof thats it me: ![image](https://user-images.githubusercontent.com/108590774/177013795-80b0e338-fa58-4eba-837f-340bab0c4e9a.png)
-
-
-# Contact
-
-if you want to contact me just dm me on twitter https://twitter.com/glizuwu
